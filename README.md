@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @C.Santhosh-IT
 - Fresher
-- 👀 I’m interested in AI
+- 👀 I’m Java Enthusiast.
 - 🌱 I’m currently looking for JOB 
 - 📫 How to reach me santhosh.chandrasekar2003@gmail.com
 
